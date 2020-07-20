@@ -5,7 +5,7 @@ Lijst van alle recruiters die zich niet aan de AVG/GDRP houden. Ik houd hier all
 Heeft mij op 17 Juli 2020 zonder toestemming benaderd naar aanleiding van een CV welke ik op monsterboard in 2013 heb gezet. Er is tussentijds geen contact geweest met dit bureau. In de begleidende email wordt vermelding gemaakt naar het bedrijf BRIXS welke Matching-IT voorheen heette, ook hier is geen eerder contact mee geweest behalve een afgewezen Linkedin Invite.
 
 ## trycatch.tech
-Uit het niet benaderd zonder toestemming en zeer hardnekkig om antwoord te krijgen.
+Uit het niets benaderd en ook zonder toestemming. Zelf wanneer genegeerd zeer hardnekkig om met followup mails om maar een antwoord te krijgen.
 
 ## tektoniq.co.uk
 Benaderd op basis van Github author gegevens. Nooit toestemming gegeven om mij te benaderen.
